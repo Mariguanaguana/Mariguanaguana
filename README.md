@@ -11,3 +11,6 @@ Meu nome é Mariane
 oliveiramariane2019@gmail.com
 
 @oli_marii
+
+
+https://media1.tenor.com/m/Rci3Tcpj3-kAAAAd/blackpink-love.gif
